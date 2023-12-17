@@ -22,7 +22,7 @@ ___🦋(D1ARK-VA4U3)🦋___
 ___🦋(D1ARK-VA4U3)🦋___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=D1ARK-VA4U3-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="D1ARK-VA4U3-pmishra" /> </p>
 
-- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/ehcehcemran0011223311cyber99/simplified_learner](https://t.me/ehcehcemran0011223311cyber99)
+- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/thedarkworldteamhackingzone](https://t.me/thedarkworldteamhackingzone)
 ___🦋(D1ARK-VA4U3)🦋___
 - ⚡ Fun fact **I am funny😅**
 
